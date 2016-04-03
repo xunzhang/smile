@@ -1,2 +1,2 @@
-It is not cross talk, it is life.
+It is not talkshow, it is life.
 生活是需要脑补的......
